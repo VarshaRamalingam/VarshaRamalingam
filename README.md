@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VarshaRamalingam
 - 🌱 I’m currently working as a Software Professional
 - 📫 How to reach me : varsganapathy98@gmail.com
-- ⚡ Fun fact: 
+- ⚡ "DREAM BIG.WORK HARD.STAY FOCUSSED!" 
 
 <!---
 VarshaRamalingam/VarshaRamalingam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
